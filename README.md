@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **skanderthabet1@gmail.com**
 
-- ⚡ Fun fact **I flirt in French.**
+- ⚡ Fun fact **I like manga.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
